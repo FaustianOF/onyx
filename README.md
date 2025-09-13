@@ -88,6 +88,6 @@ Villia – UI/UX Designer
 
 📌 Contact & Support
 
-Email: onyx.sneakershop@gmail.com
+Email: owenfaustian2@gmail.com
 
 Website: ONYX (not hosted yet)
